@@ -5,7 +5,7 @@ I was born in Punjab and lived for 16 years in Austria <img src="https://cdn.img
 
 I love to play **table tennis** and **online games.**
 
-<img src="https://wallpaper-house.com/data/out/10/wallpaper2you_454161.jpg" alt="drawing" width="500">
+<img src="https://wallpaper-house.com/data/out/10/wallpaper2you_454161.jpg" alt="minions" width="500">
 
 
 | Monday        | Tuesday   | Wednesday |Thursday|Friday|
